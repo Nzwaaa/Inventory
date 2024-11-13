@@ -1,9 +1,15 @@
-![WhatsApp Image 2024-11-10 at 18 01 38_13dbfebc](https://github.com/user-attachments/assets/57850222-63a9-4a1f-a8be-452e05829a1c)
-![WhatsApp Image 2024-11-10 at 18 01 38_289706c7](https://github.com/user-attachments/assets/e9c13e26-17b1-4018-a976-607aa4599369)
-![WhatsApp Image 2024-11-10 at 18 01 39_de2d2814](https://github.com/user-attachments/assets/90e59e39-86a4-470f-96ea-5ed610c83721)
-![WhatsApp Image 2024-11-10 at 18 01 40_98d42a77](https://github.com/user-attachments/assets/e75cd4d7-03b6-40dc-abf0-eab0e7ab4dde)
-ketika klik sell maka quantity akan berkurang
-![WhatsApp Image 2024-11-10 at 18 01 40_9089699a](https://github.com/user-attachments/assets/09000e57-1789-4c4b-8207-6678670335df)
-![WhatsApp Image 2024-11-10 at 18 01 40_68c60bb4](https://github.com/user-attachments/assets/659ab128-52c9-4653-a850-1372c61dd667)
-![WhatsApp Image 2024-11-10 at 18 01 40_c5832a15](https://github.com/user-attachments/assets/3bbf5554-0b77-44c2-84da-70530f7057d8)
 
+![WhatsApp Image 2024-11-13 at 11 38 35_b8b9c0e0](https://github.com/user-attachments/assets/e60d955c-01e5-4a7a-afc1-b2f3b16d2278)
+
+![WhatsApp Image 2024-11-13 at 11 38 36_bc55bb84](https://github.com/user-attachments/assets/e5bce259-79f1-486b-938e-3a7b0a2ae407)
+
+![WhatsApp Image 2024-11-13 at 11 38 36_ae2c2ce4](https://github.com/user-attachments/assets/62cc1910-29bd-4e95-a940-bd0a0534c492)
+
+![WhatsApp Image 2024-11-13 at 11 38 36_f8eb7d83](https://github.com/user-attachments/assets/96a44cdb-6459-446c-93fa-b7a4b930d7a2)
+
+
+![WhatsApp Image 2024-11-13 at 11 38 37_2a6d4661](https://github.com/user-attachments/assets/6ffe5396-cf37-402e-8cba-65f8b6794bd5)
+
+![WhatsApp Image 2024-11-13 at 11 38 37_9ed4a3b2](https://github.com/user-attachments/assets/2146142e-993a-4502-9f62-18c3b392bd82)
+
+![WhatsApp Image 2024-11-13 at 11 38 37_c203b094](https://github.com/user-attachments/assets/be9699a8-a9e3-4379-ac7c-f63014d20eb4)
